@@ -1,13 +1,15 @@
 # **Impact Sessions**
-_events and media that connects the impact community_
+_Events and media that connects the impact community in the region_
 
-The Impact Sessions is an event series for professionals in the global development field. Since 2017, the series has organized monthly drinks with notable speakers from Beijing and the region to share insights and experience in multilateral institutions. The series brings together a network of multilateral banks, development agencies, non-profit partners and consultants to foster real long-term collaborations, and generate relevant industry content.
+The Impact Sessions are a series of events and activities that are produced in China and the region for professionals in the global development field.
+
+Since 2017, the series has organized monthly drinks with notable speakers to share insights and experience in multilateral institutions. The events gahter a network of multilateral banks, development agencies, non-profit partners and consultants to foster real long-term collaborations, and generate relevant industry content.
 
 
-## May 10, 2018 - The First Impact Sessions Unconference
+## Most recent event: The First Impact Sessions Unconference in Beijing
 
 Our first Impact Sessions Unconference kicked off on May 10, 2018!
-It featured 9 speakers from local and international organizations, and we  were joined by more  than 100 people!
+It featured 9 speakers from local and international organizations, and we were joined by more than 100 people!
 
 ### Top 10 pictures
 
